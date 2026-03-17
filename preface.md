@@ -4,7 +4,7 @@ A storynote collection relating to "fairy witches"; this is not a well-defined t
 
 To provide context, this storynote will also inlcude notes on fairy changelings, "white horses" used to travel between fairy forts, other flavours of "witch" as reported in the press.
 
-Notes on "wise women" appear in other stroynotes (e.g. Ross-on-Wye stroynotes). Other storynotes that touch on the treatment of women include e.g. *wife selling* and **Skimmington rides*, currently in the the original stroynotes repo.
+Notes on "wise women" appear in other storynotes (e.g. Ross-on-Wye storynotes). Other storynotes that touch on the treatment of women include e.g. *wife selling* and **Skimmington rides*, currently in the the original stroynotes repo.
 
 
 --Tony 'Monty' Hirst
