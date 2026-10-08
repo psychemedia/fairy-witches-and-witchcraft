@@ -14,6 +14,8 @@ p213.
 witches
 
 
+
+
 https://archive.org/details/bub_gb_vPky9qkE9REC/page/n89/mode/2up?q=changeling
 Popular romances of the west of England, or, The drolls, traditions, and superstitions of old Cornwall
 by Hunt, Robert, 1807-1887; Cruikshank, George, 1792-1878
@@ -35,6 +37,14 @@ TO DO
 https://www.britishnewspaperarchive.co.uk/viewer/bl/0000492/18260717/009/0002
 https://www.britishnewspaperarchive.co.uk/viewer/bl/0000492/18270416/035/0004
 
+
+
+https://newspapers.library.wales/view/3440980/3440983/11/rossonwye%2BOR%2Bwitch?from=search
+Monmouthshire Merlin
+     
+8th January 1875
+
+EXTRAORDINARY SUPERSTITION. At the Weston-super-Mare Police Court, Hester Adams, a middle-aged woman, was charged with assaulting an old woman named Maria Pring at the adjacent village of Lympsham, by stabbing her in the face and hands. Complainant stated that the defendant, after assaulting her, exclaimed, "New I've drawn your blood I'm happy."—Defendant: I can prove that she is an oid witch, and she have hag rided me and my husband for the past two years.—The Bench: In what way?—Defendant: She comes to my house and groans at me. I have often seen her in the night.-The Bench: Do you believe she has an evil eye?—Defendant: I know she is an old witch.—The Bench: What do you mean by calling her a witch?—Defendant Why, an evil spirit,— The Bench Why do you not take the advice of Rev. Prebendary Stephenson, your vicar, on the matter, as he would dissuade you from such foolish notions?—Defendant: Mr. Stephenson believes it too, but don't know what to do with her.-Thomas Cook, farmer, said he was passing complainant's cottage, when he saw the two women struggling together, and heard defendant exclaim, I don't care now I've drawn blood from her. The Bench (to defendant): What does the complainant do to injure you?—Defendant: I had no rest night or day before I scratched her, and now my husband is troubled by her.—The Bench: What do you mean by hag-riding?-Defendant: A person that comes and terrifies others by night.—The Bench: Have you been troubled by her since you drew her blood?—Defendant: Not so much, but my husband is and I'll draw it again for her if she does not leave me alone.—The Bench: We shall stop you from doing that for some time to come.—Defendant: Complainant said she wished she had a good stick for me.-The Bench: Which would have served you right.-Defendant: I have been obliged to leave Lympham because she terrified me so—The Bench: but what does she do to you?-Defendant: Why, I cannot stand sometimes, or do anything.—The Bench: Do you see her when she terrifies you?—Defendant: Yes, I have see her many times at night, but she does not come bodily.—The Bench: How then?—Defendant: Why, spiritually. (Laughter.)-The Bench: It is a sad state of things to believe in such superstition, as you do, in the nineteenth century.-The Clerk: How does the complainant appear to you?—Defendant: In a nasty, evil, spiritual way, making a nasty noise.—The Bench imposed a fine of 1s. for the assault, and bound defendant over to be of good conduct for one month, for using the threat she had in court.
 
 https://britishnewspaperarchive.co.uk/viewer/bl/0000398/18270711/001/0004
 Hereford Journal - Wednesday 11 July 1827
